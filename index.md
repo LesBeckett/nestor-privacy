@@ -1,6 +1,6 @@
 # Nestor — Privacy Policy
 
-**Last updated:** \[date of publication\]
+**Last updated:** 26 October 2026
 
 ## What is Nestor?
 
